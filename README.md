@@ -24,3 +24,7 @@ Here are some things about me:
 - 🌱 I’m currently learning CV
 - 📫 How to reach me: karol_silva8@hotmail.com
 -->
+---
+> We love becuse He loved first
+
+— 1 John 4:19
